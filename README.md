@@ -6,7 +6,7 @@ When it comes to music, I love listening to [My favorite: K-pop (blackpink,babym
 ~~~
 I also enjoy spending time with my friends and family. They make me laugh and support me in everything I do. I’m a bit shy at first, but once I get comfortable, I can be really talkative and fun to be with!
 ~~~
-My dream is to become [your dream job—example: a nurse, and an artist, etc.], because I want to help people and do something meaningful with my life.
+My dream is to become [a nurse, and an artist, etc.], because I want to help people and do something meaningful with my life.
 ~~~
 In my free time, I like to [—watch movies, write stories, dance, cook, etc.]. I also enjoy learning new things, whether it's a fun fact or a new skill!
 ~~~
